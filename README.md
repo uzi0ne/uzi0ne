@@ -1,5 +1,5 @@
 
-## Java BackEnd Developer
+## Developer
 
 ### **📲CONTACT**
 
